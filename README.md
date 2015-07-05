@@ -18,7 +18,7 @@ It's all about the insights! Forget the typical analytics data clutter, and let 
 
 Read more: http://gravitalanalytics.com/analysis.html
 
-Tools Integration & Data Service
+>>>Tools Integration & Data Service
 
 At the end of the race, it's about the customer. Deliver value to them, and you get paid! The key is to coordinate activities among different teams. This requires integration of tools and secure data consolidation for success.
 
