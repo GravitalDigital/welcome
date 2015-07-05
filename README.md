@@ -1,5 +1,4 @@
-# welcome
-About Gravital Analytics
+# @GoGravital
 
 Inspire your team with gauges that win races.
 
