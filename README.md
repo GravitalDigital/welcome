@@ -1,8 +1,7 @@
-# @GoGravital
-
-Inspire your team with gauges that win races.
+# Inspire your team with gauges that win races.
 
 Turbo boost your growth using Active Analytics Loops.
+
 We help digital marketing & developer teams create awesome customer experiences.
 
 >>>Analytics Process Setup Service
