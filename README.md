@@ -1,24 +1,24 @@
-# Inspire your team with gauges that win races.
+# Tune your team's gauges to win races.
 
-Turbo boost your growth using Active Analytics Loops.
+Create a data-driven ecosystem that delivers value from insights.
 
-We help digital marketing & developer teams create awesome customer experiences.
+We improve digital team performance by creating the right focus, plan and process.
 
->>>Analytics Process Setup Service
+>>>Data-driven Ecosystem Creation
 
-Data-driven, agile marketing and development isn't about data. It's about quickly assessing the economic value that your digital campaigns and assets contribute to your bottom line. We provide an analytics process that wins races!
+Most businesses have invested in becoming data driven, yet 81% are not satisfied with the insights their tools provide. We help clients develop ecosystems with focus, a plan, and a process to leverage their tools & talent.
 
 Read more: http://gravitalanalytics.com/analytics-process.html
 
 >>>Data Analysis & Insights Service
 
-It's all about the insights! Forget the typical analytics data clutter, and let us gauge the true value of your marketing and development activities. We provide both tactical as well as strategic reporting from many platforms.
+The top challenge posed by D&A is having the capabilities needed to fully leverage their assets (only 14% of companies report having the talent). We provide affordable tactical and strategic analysis and insights from many DM platforms.
 
 Read more: http://gravitalanalytics.com/analysis.html
 
 >>>Tools Integration & Data Service
 
-At the end of the race, it's about the customer. Deliver value to them, and you get paid! The key is to coordinate activities among different teams. This requires integration of tools and secure data consolidation for success.
+The second biggest challenge to delivering value from data is that 58% of organizations have difficulties evaluating data quality and reliability. We improve insights from data by integrating tools, consolidating data and proper governance.
 
 Read more: http://gravitalanalytics.com/integration.html
 
