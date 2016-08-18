@@ -1,36 +1,30 @@
-# Tune your team's gauges to win races.
+# Search Engine Marketing • PPC • Programmatic Display • Analytics
 
-Create a data-driven ecosystem that delivers value from insights.
+>>>Search Engine Marketing and Pay-per-click (PPC) advertising
 
-We improve digital team performance by creating the right focus, plan and process.
+Gravital has the right people, technology and approach to ensure that your paid search activity is at the forefront of digital innovation.
 
->>>Data-driven Ecosystem Creation
+Read more: http://gravitaldigital.com/search-engine-marketing.html
 
-Most businesses have invested in becoming data driven, yet 81% are not satisfied with the insights their tools provide. We help clients develop ecosystems with focus, a plan, and a process to leverage their tools & talent.
+>>>Programmatic Display Adveretising
 
-Read more: http://gravitalanalytics.com/analytics-process.html
+Gravital's programmatic display enables us to serve the right ads, to the right people, at the right time in their customer journey.
 
->>>Data Analysis & Insights Service
+Read more: http://gravitaldigital.com/programmatic-display.html
 
-The top challenge posed by D&A is having the capabilities needed to fully leverage their assets (only 14% of companies report having the talent). We provide affordable tactical and strategic analysis and insights from many DM platforms.
+>>>Campaign Creative
 
-Read more: http://gravitalanalytics.com/analysis.html
+We're proud to have an experienced team offering HTML5, animation and video production here at Gravital.
 
->>>Tools Integration & Data Service
+Read more: http://gravitaldigital.com/campaign-creative.html
 
-The second biggest challenge to delivering value from data is that 58% of organizations have difficulties evaluating data quality and reliability. We improve insights from data by integrating tools, consolidating data and proper governance.
+>>>Digital Analytics
 
-Read more: http://gravitalanalytics.com/integration.html
+Our firm started as an analytics company, so we understand the importance of great data, and helping you understand what your data is telling you.
 
-Gravital Analytic's mission is helping companies drive growth using best-practice analytics processes for actionable insights. We love what we do and we hope you will too!
+Read more: http://gravitaldigital.com/digital-analytics.html
 
-Gravital Analytics West Coast
-
- 640 W California St.
- Sunnyvale, CA 94086
- (408) 256-3561
- 
- Our New East Coast Office
+Gravital Analytics East Coast Office
 
  37 N Orange Ave.
  Orlando, FL 32801
