@@ -24,8 +24,9 @@ Our firm started as an analytics company, so we understand the importance of gre
 
 Read more: http://gravitaldigital.com/digital-analytics.html
 
-Gravital Analytics East Coast Office
+Gravital Digital
 
  37 N Orange Ave.
  Orlando, FL 32801
  (407) 710-5497
+ @GoGravital
